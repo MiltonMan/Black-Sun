@@ -1,4 +1,4 @@
-# **B L A C K  S U N ** #
+# B L A C K  S U N #
 
 ![](./art1.jpg)
 
